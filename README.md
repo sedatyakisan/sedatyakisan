@@ -1,1 +1,2 @@
-- 👋 Hi, I’m sedatyakisan
+- 👋 Hey! Nice To See You.
+- I'm Sedat, Business Analyst From Turkey/İstanbul
